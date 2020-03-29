@@ -1,0 +1,1 @@
+Fui criado para saber como posso ser usado para coisas boas
